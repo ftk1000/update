@@ -12,6 +12,8 @@
 5 декабря он заявил, что его медицинское обследование больше не выявило рака.
 
 Я бы хотел, чтобы у всех больных раком были такие же хорошие врачи, как у Картера.
+
+
 On August 3, 2015, Carter underwent an elective surgery to remove a small mass on his liver, and
 his prognosis for a full recovery was initially said to be excellent.
 On August 12, he announced he had been diagnosed with cancer that had metastasized,
