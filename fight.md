@@ -18,8 +18,8 @@ On August 3, 2015, Carter underwent an elective surgery to remove a small mass o
 his prognosis for a full recovery was initially said to be excellent.
 On August 12, he announced he had been diagnosed with cancer that had metastasized,
 without specifying where the cancer had originated.
-On August 20, Carter disclosed that melanoma had been found in his brain and liver, and t
-hat he had begun treatment with the immunotherapy drug pembrolizumab and
+On August 20, Carter disclosed that melanoma had been found in his brain and liver, and
+that he had begun treatment with the immunotherapy drug pembrolizumab and
 was about to start radiation therapy. His healthcare was managed by Emory Healthcare of Atlanta.
 His family history of cancer includes both of his parents and all three of his siblings.
 On December 5, he announced that his medical scans no longer showed any cancer.
